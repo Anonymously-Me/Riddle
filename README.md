@@ -1,2 +1,2 @@
 # Riddle
-It is website which have many logical and  tricky question.
+GET YOUR DAILY MENTAL DOSE FROM THIS AMAZING WEB SITE!!!
